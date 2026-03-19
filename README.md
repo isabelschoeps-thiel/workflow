@@ -79,6 +79,6 @@ Daraufhin gab ich ihn, einen Kuss auf die Stirn! Und genau das tue ich jetzt auc
 
 <img width="1414" height="2000" alt="Image" src="https://github.com/user-attachments/assets/97794f6b-fe9c-460b-a12f-a7909e8ed0c0" />
 
-**Cyriakstrasse 30c D-99094 Erfurt, Thüringen, Deutschland, den 07.01.2026, um 16:16Uhr-CEST**
+**Autorin, Urheberin, Auftraggeberin:** Frau Isabel Schöps, geborene Thiel, Hütergasse 4, D-99084 Erfurt, Thüringen, Deutschland
 
-**Autorin, Urheberin, Auftraggeberin:** Frau Isabel Schöps, geborene Thiel, Cyriakstrasse 30c, D-99094 Erfurt, Thüringen, Deutschland
+Evidence of my workflow and my Identity, as researcher in Deepweb, Pornakteur, Auftraggeberin und Autorin, Urheberin; Ich Frau Isabel Schöps geb. Thiel Zeitstempel der Eintragung: Donnerstag den 19.03.2026, Internationale-Kennung: INT-CODE-2025-BTC/ETH-CORE-ISABELSCHOEPSTHIEL und YWP-1-IST-SIA
